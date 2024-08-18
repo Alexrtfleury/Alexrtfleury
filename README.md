@@ -1,5 +1,6 @@
 ## Hi there 👋
-- 📫 Cómo contactarme: ...
+- 📫 Cómo contactarme: rafa12lury@gmail.com
+- 🔭 ¿Quieres saber de mi?:  
 <!--
 **Alexrtfleury/Alexrtfleury** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
