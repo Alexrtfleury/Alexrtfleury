@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **rafa12lury@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/alexander-tovar-fleury-67938b224](www.linkedin.com/in/alexander-tovar-fleury-67938b224)
+- 📄 Know about my experiences [www.linkedin.com/in/alexrtfleury](www.linkedin.com/in/alexrtfleury)
 
 - ⚡ Fun fact **teamwork and commitment**
 
